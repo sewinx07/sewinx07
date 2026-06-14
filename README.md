@@ -19,7 +19,7 @@
 [![](https://komarev.com/ghpvc/?username=sewinx07&icon=0&color=0)](https://visitcount.itsvg.in)
 
   ## 💰 You can help me by Donating
-  [![BuyMeACoffee](https://img.shields.io/badge/Buy%20Me%20a%20Coffee-ffdd00?style=for-the-badge&logo=buy-me-a-coffee&logoColor=black)](https://buymeacoffee.com/buymeacoffee.com/sewinx) [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://ba9chich.com/en/sewinx) 
+  [![BuyMeACoffee](https://img.shields.io/badge/Buy%20Me%20a%20Coffee-ffdd00?style=for-the-badge&logo=buy-me-a-coffee&logoColor=black)](https://buymeacoffee.com/buymeacoffee.com/sewinx) [![ba9chich]([https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white](https://scontent.ftun14-1.fna.fbcdn.net/v/t39.30808-6/298463997_598101118608161_7391460476126975583_n.jpg?stp=dst-jpg_tt6&cstp=mx1468x1468&ctp=s1468x1468&_nc_cat=103&ccb=1-7&_nc_sid=6ee11a&_nc_ohc=PAzvvRo_ZbUQ7kNvwEN_pW5&_nc_oc=Adrs6VWTYNgv47gH3dMx6D4D3nHTT5WcMHvj_sg5wB5nti5GzkeUoo7Ylm_9l-vgCOY&_nc_zt=23&_nc_ht=scontent.ftun14-1.fna&_nc_gid=KF_0UmI5ot_YFcnOatkZRg&_nc_ss=7b2a8&oh=00_Af_fWPzTgDgjtwJPGn8bkqdzOyas0GKhLbOjzAsCJ8Z5zw&oe=6A349162))](https://ba9chich.com/en/sewinx) 
 
   
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
